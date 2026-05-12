@@ -1,4 +1,4 @@
-## Hi there 🥸
+## Hey there! 🤙
 
 I'm John Franklin, a [NMA](https://nma.kapiolani.hawaii.edu/index.html) web design student based in Hawaii. 
 
