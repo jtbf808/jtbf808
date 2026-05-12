@@ -10,7 +10,7 @@ Some upincoming summer project include: TAE Designs+, CSS/HTML/JS summer course 
 
 <br>
 
-My portfolio is currently under works! please check back twoards the end of August 2026!
+My portfolio is currently under works! please check back twoards the beginning of August 2026!
 
 Fun Facts: 
 
